@@ -1,0 +1,1 @@
+# temirgali_d
